@@ -1,1 +1,5 @@
 # flyingapple
+
+
+## Projemin fikri:
+> 
